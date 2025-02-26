@@ -1,13 +1,6 @@
 
 
-
-<script>
-ref="https://streamespn.org/hsb/?m=Norcross vs Wheeler";
-top.location.replace(ref);
-</script>
-
-
-#!*HS+[TV]!. 'Norcross vs Wheeler Live stream School Basketball Game On February 26, 2025
+# !*HS+[TV]!. 'Norcross vs Wheeler Live stream School Basketball Game On February 26, 2025
  
  
 ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬
@@ -17,11 +10,11 @@ top.location.replace(ref);
 
  Norcross vs Wheeler Live School Basketball Game On February 26, 2025 Daily soccer news from best leagues in the world. Also featuring match tips, betting, and bookmaker promotions. Transfer news and list of completed
 
-**[🌐 CLICK HERE 🟢==►► WATCH NOW](https://streamespn.org/hsb/?m=Norcross vs Wheeler)**
+**[🌐 CLICK HERE 🟢==►► WATCH NOW](https://streamespn.org/hsb/)**
 
-**[🔴 CLICK HERE 🌐==►► LIVE STREAM FREE](https://streamespn.org/hsb/?m=Norcross vs Wheeler)**
+**[🔴 CLICK HERE 🌐==►► LIVE STREAM FREE](https://streamespn.org/hsb/)**
 
-[![WATCH Videos](https://i.imgur.com/dJHk4Zq.gif)](https://streamespn.org/hsb/?m=Norcross vs Wheeler)
+[![WATCH Videos](https://i.imgur.com/dJHk4Zq.gif)](https://streamespn.org/hsb/)
 
 Sky Sports Football - Live games, scores, latest football news, transfers, results, fixtures and team news from the Soccer.
 
