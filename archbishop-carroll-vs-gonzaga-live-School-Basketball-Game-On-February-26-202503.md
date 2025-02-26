@@ -1,13 +1,4 @@
-
-
-
-<script>
-ref="https://streamespn.org/hsb/?m=Archbishop Carroll vs Gonzaga";
-top.location.replace(ref);
-</script>
-
-
-#!*HS+[TV]!. 'Archbishop Carroll vs Gonzaga Live stream School Basketball Game On February 26, 2025
+# !*HS+[TV]!. 'Archbishop Carroll vs Gonzaga Live stream School Basketball Game On February 26, 2025
  
  
 ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬ ¬
@@ -17,11 +8,11 @@ top.location.replace(ref);
 
  Archbishop Carroll vs Gonzaga Live School Basketball Game On February 26, 2025 Daily soccer news from best leagues in the world. Also featuring match tips, betting, and bookmaker promotions. Transfer news and list of completed
 
-**[🌐 CLICK HERE 🟢==►► WATCH NOW](https://streamespn.org/hsb/?m=Archbishop Carroll vs Gonzaga)**
+**[🌐 CLICK HERE 🟢==►► WATCH NOW](https://streamespn.org/hsb/)**
 
-**[🔴 CLICK HERE 🌐==►► LIVE STREAM FREE](https://streamespn.org/hsb/?m=Archbishop Carroll vs Gonzaga)**
+**[🔴 CLICK HERE 🌐==►► LIVE STREAM FREE](https://streamespn.org/hsb/)**
 
-[![WATCH Videos](https://i.imgur.com/dJHk4Zq.gif)](https://streamespn.org/hsb/?m=Archbishop Carroll vs Gonzaga)
+[![WATCH Videos](https://i.imgur.com/dJHk4Zq.gif)](https://streamespn.org/hsb/)
 
 Sky Sports Football - Live games, scores, latest football news, transfers, results, fixtures and team news from the Soccer.
 
